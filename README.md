@@ -15,6 +15,3 @@ https://modsfire.com/16S5Eaqu8l91aLS
 
 
 https://modsfire.com/4D6P9SIW4F6pQDF
-
-
-https://sharemods.com/yleuw8u9psj7/ZOMVL_NoLimits_Chevrolet_Lumina_2008-2010.zip.html
