@@ -50,3 +50,6 @@ https://modsfire.com/1qs5268glCJ92VZ
 
 Camry 2002 
 https://modsfire.com/pJXBLML9LZSgiYe
+
+corolla 2020
+https://modsfire.com/q09CF6vj47wBR6C
