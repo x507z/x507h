@@ -1,6 +1,6 @@
 # x507h
 
-هايلوكس ماجد
+
 T
 ttps://www.mediafire.com/file/5cyq4gnsp86u5l1/Hilu16.zip/file
 
@@ -87,3 +87,8 @@ https://modsfire.com/O6V7p9qh5mD7ZcZ
 Camry 2024 
 https://modsfire.com/woyu1oUb8K6q075
 
+Land Cruiser 2023 
+https://modsfire.com/8Llq7dNg7em7Nad
+
+LX570
+https://modsfire.com/fm08iDqijsQQ8gW
