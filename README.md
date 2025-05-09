@@ -91,3 +91,6 @@ https://modsfire.com/fm08iDqijsQQ8gW
 
 2016 Chevy SS
 https://modsfire.com/F1Tk2DYaQ00F9A1
+
+F150 2023
+https://www.mediafire.com/file/libae3wgv9ziwe8/f150icybeefy.zip/file
