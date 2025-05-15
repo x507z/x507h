@@ -73,6 +73,10 @@ map tocsk
 https://modsfire.com/x0pFzyU8nlU5vk95
 
 map 560
+https://sharemods.com/5mompvb037uo/UAE_StreetDesart-v0.1.zip.html
+
+map hgulah 2
+https://modsfire.com/4V21S56BHLnUY06
 
 sierra 2017
 https://modsfire.com/3S1WzpOJb7uq89k 
@@ -97,3 +101,6 @@ https://www.mediafire.com/file/libae3wgv9ziwe8/f150icybeefy.zip/file
 
 Monza 2023
 https://modsfire.com/04ctR1JgNf25X7x
+
+sierra 2020
+https://gamebanana.com/mods/download/432082#FileInfo_948838
