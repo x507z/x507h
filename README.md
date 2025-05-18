@@ -58,7 +58,7 @@ taho 2023
 https://sharemods.com/jtwr5ka6roub/artahoe21_modland.zip.html
 
 map 1
-https://gofile.io/d/rEQZ5T
+https://gofile.io/d/qo4gmj
 
 map hgulh
 https://modsfire.com/sqgAkFziU7Z318F
