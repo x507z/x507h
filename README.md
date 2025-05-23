@@ -78,6 +78,15 @@ https://sharemods.com/5mompvb037uo/UAE_StreetDesart-v0.1.zip.html
 map hgulah 2
 https://modsfire.com/4V21S56BHLnUY06
 
+map drift
+https://www.modland.net/download/332491
+
+map M6N
+https://modsfire.com/dfeI53ex2P2xJ6b
+
+Saudi Hajoula Street 
+https://drive.google.com/file/d/10fCq8AGuH993RVS13a0Kc4Ilacl_k2FV/view?usp=sharing
+
 sierra 2017
 https://modsfire.com/3S1WzpOJb7uq89k 
 
