@@ -7,7 +7,7 @@ Lumina 2010
 https://modsfire.com/4D6P9SIW4F6pQDF
 
 Caprice 2016 
-https://modsfire.com/20py72ibsVDoJqQ
+https://www.mediafire.com/file/bqdz2hzqrjl5u00/zmvCaprice16.zip/file
 
 Camry 2019 
 https://modsfire.com/Jl0V23C9B4Z8DUb
@@ -80,6 +80,9 @@ https://modsfire.com/dfeI53ex2P2xJ6b
 Saudi Hajoula Street 
 https://drive.google.com/file/d/10fCq8AGuH993RVS13a0Kc4Ilacl_k2FV/view?usp=sharing
 
+map
+https://www.mediafire.com/file/s1vawecyea718vw/VIOLENT_AL6O8Y.zip/file
+
 sierra 2017
 https://modsfire.com/3S1WzpOJb7uq89k 
 
@@ -130,3 +133,6 @@ https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
 
 Hilux 2012-2015 
 https://modsfire.com/Eftxya5n0sUW3Q9
+
+geely 2023
+https://modsfire.com/4xC6Ujn36b8VBgn
