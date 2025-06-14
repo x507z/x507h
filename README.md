@@ -45,7 +45,7 @@ corolla 2020
 https://modsfire.com/q09CF6vj47wBR6C
 
 cerato 2022
-https://modsfire.com/6m0p4cOQ21qNwbB
+https://modsfire.com/EnbtT3T32r7aLg9
 
 taho 2023
 https://sharemods.com/jtwr5ka6roub/artahoe21_modland.zip.html
@@ -150,4 +150,10 @@ map DT
 https://modsfire.com/1QC1t80gQLOlJFv
 
 2_k4
-https://modsfire.com/d7s2xpazVK85vmb
+https://www.mediafire.com/file/0kxjp460dkcq5a8/k4_25_Abu_Zarha.zip/file
+
+Camry 2011 
+https://drive.usercontent.google.com/download?id=1ibUKrLkRMsrOUZiw6bixiuDTosiCfmDz&export=download&authuser=0
+
+Dodge 2014 
+https://www.mediafire.com/file/9xgp9g0jgtz75lc/Dodge_Charger_14_v3.zip/file
