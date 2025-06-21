@@ -119,9 +119,6 @@ https://modsfire.com/tLXV7vna03QVHuO
 Cruze 2014 
 https://modsfire.com/v77T8rg7GXU7pli
 
-Sierra 2013 
-https://modsfire.com/3xcUud6T65h4M6u
-
 street
 https://modsfire.com/jcR20C022v1Asal
 
@@ -178,3 +175,6 @@ https://www.mediafire.com/file/z8bssl69vvoql4g/Camry_Grande.zip/file
 
 Orion 2009
 https://www.mediafire.com/file/1miueb6c98m3xrx/Soma_Toyota_Aurion.zip/file
+
+Sierra 2013 
+https://modsfire.com/vzHV00lGe211b68
