@@ -175,3 +175,6 @@ https://modsfire.com/3UxT90mEj2oIweD
 
 Camry 2002 
 https://www.mediafire.com/file/z8bssl69vvoql4g/Camry_Grande.zip/file
+
+Orion 2009
+https://www.mediafire.com/file/1miueb6c98m3xrx/Soma_Toyota_Aurion.zip/file
