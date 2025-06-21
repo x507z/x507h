@@ -170,3 +170,8 @@ https://www.mediafire.com/file/zmzhs54mwxi3rjs/lost_Optima2015.zip/file
  Map النظيم
 https://www.mediafire.com/file/4zpkwit09ous3sp/MSKAT_50_aln9em.zip/file
  
+Hilux 2016
+https://modsfire.com/3UxT90mEj2oIweD
+
+Camry 2002 
+https://www.mediafire.com/file/z8bssl69vvoql4g/Camry_Grande.zip/file
