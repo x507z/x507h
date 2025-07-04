@@ -178,3 +178,6 @@ https://www.mediafire.com/file/1miueb6c98m3xrx/Soma_Toyota_Aurion.zip/file
 
 Sierra 2013 
 https://modsfire.com/vzHV00lGe211b68
+
+R
+https://sharemods.com/4d8mtli0kxyv/monster_j70.zip.html
