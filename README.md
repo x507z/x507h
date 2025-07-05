@@ -90,7 +90,7 @@ Sierra 2015 2500
 https://modsfire.com/O6V7p9qh5mD7ZcZ
 
 Camry 2024 
-https://modsfire.com/woyu1oUb8K6q075
+https://www.mediafire.com/file/x7d2x14fjof952g/Camry_24_Abu_Zarha.zip/file
 
 Land Cruiser 2023 
 https://modsfire.com/8Llq7dNg7em7Nad
@@ -112,9 +112,6 @@ https://gamebanana.com/mods/download/432082#FileInfo_948838
 
 Sierra 2020 غماره
 https://www.mediafire.com/file/7lcqtt8k91upy6y/392Mafia_gmcsierra_updated.zip/file
-
-Caprice 2008-2016
-https://modsfire.com/tLXV7vna03QVHuO
 
 Cruze 2014 
 https://modsfire.com/v77T8rg7GXU7pli
@@ -181,3 +178,9 @@ https://modsfire.com/vzHV00lGe211b68
 
 R
 https://sharemods.com/4d8mtli0kxyv/monster_j70.zip.html
+
+Hilux V1 
+https://www.mediafire.com/file/pu3xuo8p9by7gfm/Hilux_V1.zip/file
+
+Camry 2011 
+https://www.mediafire.com/file/gfik5h9xe0mh1eb/Camry_2011.zip/file
